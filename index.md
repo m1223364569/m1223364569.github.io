@@ -30,5 +30,5 @@ And right here tonight
 
 This could be the start of something new
 
-It feels so right ，to be here with you
+It feels so right  to be here with you
 

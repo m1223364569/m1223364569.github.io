@@ -1,6 +1,6 @@
 ## About the start of something new
 
-![avatar](D:\南京大学\课件\管理学研究工具\w14.png)
+![avatar](w14.png)
 
 Living in my own world
 

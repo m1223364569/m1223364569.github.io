@@ -22,7 +22,7 @@ To all the possibilities
 
 
 
-I know， that something has changed
+I know that something has changed
 
 Never felt this way
 
